@@ -3,5 +3,5 @@
 
 ## new version, creating accounts for mobile phones and mail
 # contact me
-# telegram: @bloodyev
-https://t.me/bloodyev
+# telegram: @Neo_Galaxy
+https://t.me/Neo_Galaxy
